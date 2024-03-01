@@ -8,9 +8,9 @@ Le site Web où vous pouvez regarder des films de Bob Marley : One Love en strea
 
 ┌──────────────•✧✧•────────────────┐
 
-Regarder ➡  
+Regarder ➡  https://moviefrit.pro/fr/movie/802219/bob-marley-one-love
 
-Telecharger ➡  
+Telecharger ➡  https://moviefrit.pro/fr/movie/802219/bob-marley-one-love
 
 └────────────── •✧✧• ────────────────┘
 
